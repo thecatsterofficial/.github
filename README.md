@@ -1,5 +1,4 @@
----
-title: "Why Is My Cat Peeing Everywhere? 3 Shocking Reasons & How to Stop It"
+ "Why Is My Cat Peeing Everywhere? 3 Shocking Reasons & How to Stop It"
 author: "thecatsterofficial@gmail.com"
 date: "February 27, 2025"
 categories: [Health & Care]
